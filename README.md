@@ -1,1 +1,0 @@
-# wayz-app
